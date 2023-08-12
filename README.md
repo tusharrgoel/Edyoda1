@@ -1,0 +1,1 @@
+The entire figma designed was copied out here. There were some fonts which were not be able to be imported because of some issues and some icons and the images from figma. But i used the other one available and did those giving my best. I think I was able to copy out 95% of the page given and could have done 100% if had some extra time as I was travelling the entire day
